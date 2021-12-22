@@ -24,4 +24,11 @@ Coming up with new things everytime was exhausting and something where I lost mo
 
 
 How does my future look?
+Right now I am working on machine learning stuff.
+I want to focus on AI, considering that I make my money with other ways, it's fine for me.
+
+Might post some of these projects on here too, lets see.
+
+Thank you for reading through all of this. 
+Appreciate your investment and have a nice Day.
 
